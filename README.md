@@ -1,0 +1,1 @@
+Jam Elma Çeliku, studente në vitin e pestë në Universitetin Barleti, në programin e integruar të drejtësisë. Kjo faqe është ndërtuar për të prezantuar projektin tim në lëndën e Teknologjisë së Informacionit.
